@@ -7,7 +7,7 @@ Here is a list of things I enjoy:
 * Camping, hiking and exploring the outdoors in North Carolina
 * All things automotive related, including working on, driving and ogling cars.
 
-![IMG_4460](https://user-images.githubusercontent.com/5589379/120681604-8b24ff80-c469-11eb-96ee-349b832823d4.jpg) Camping at the Uhwarrie National Forest in 2020
+![IMG_4460](https://user-images.githubusercontent.com/5589379/120681604-8b24ff80-c469-11eb-96ee-349b832823d4.jpg) Camping at the Uhwarrie National Forest in April, 2021
 <!--
 **robfreud/robfreud** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
