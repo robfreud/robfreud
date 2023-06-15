@@ -1,7 +1,7 @@
 ### Hi there 👋
 At GitHub I'm part of the Sales organization, helping customers adopt GitHub!
 
-📫 I'm located in Hillsborough, NC
+📫 I'm located in NC
 
 Here is a list of things I enjoy:
 
